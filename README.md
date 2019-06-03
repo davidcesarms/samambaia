@@ -17,7 +17,7 @@ Valor R$1.450,00
 Direto com o proprietário.
 
 Wathsapp
-9 8127 2820
+61 9 8158 6987
 
 david.soares@caixa.gov.br
 davidcesarms@gmail.com
